@@ -1,5 +1,5 @@
 more info about mee . .
-![Frame 5](https://files.catbox.moe/vtskf8.jpeg)
+![Frame 5](https://files.catbox.moe/4five0.jpeg)
 
 hii, im rioshi ! sheher entj sp2w3 +0msk bday 25.03 
 
